@@ -1,2 +1,2 @@
 # EA
-Gorgeous aurora, devouring everything
+gorgeous aurora, devouring everything
